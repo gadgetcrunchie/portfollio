@@ -14,4 +14,4 @@
 
 🌐 Visit my website: [GadgetCrunchie.com](https://gadgetcrunchie.com)
 
-📧 Contact me: info@gadgetcrunchie.com
+📧 Contact me: mza@gadgetcrunchie.com
